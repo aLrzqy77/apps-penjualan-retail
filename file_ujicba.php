@@ -1,1 +1,1 @@
-hello
+SELAMAT DATANG
